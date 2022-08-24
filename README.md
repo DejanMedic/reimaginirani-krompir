@@ -1,0 +1,2 @@
+# reimaginirani-krompir
+Opciono 
